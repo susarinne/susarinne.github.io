@@ -1,1 +1,1 @@
-# www.susarinne.fi
+# Susa Rinne
